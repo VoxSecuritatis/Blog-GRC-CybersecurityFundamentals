@@ -103,3 +103,7 @@ Cybersecurity is an ever-evolving field requiring continuous learning and adapta
 
 ---
 > FINAL THOUGHT:  *Empower yourself with knowledge—stay vigilant, stay secure.*
+
+---
+
+© 2025 Brock Frary. All rights reserved.
